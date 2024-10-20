@@ -1,2 +1,1 @@
-# -a-letter-to-no-one
-a year ago, you were on my side, nyuapin aku karena aku gamau makan. A year ago, hari ini buruuuk banget bagi aku soalnya aku pulang ospek nangis nangis sedih deh pokoknya, trus harinya berubah jadi tenang karena kamu nyempetin kerumah buat nenangin aku and saying kalo kamu bakal create some place yg bikin aku nyaman karena kamu ikutan gusar ngeliat aku kelimpungan. a year ago everything was fine. i wont miss you, ngga akan, aku gamau kangen kamu, gamau suka kamu lagi, aku cuma mau kamu seneng dan sehat aja. hope you're ok mr mini
+
